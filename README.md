@@ -1,3 +1,3 @@
 # mtak
 my personal Repo
-day2, update changes, trying, 
+day2, update changes, trying, following, 
